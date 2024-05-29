@@ -19,3 +19,4 @@ I failed the first quarter of a class in middle school, so I made a fake report 
 
 >>>>>>> 606da4c951e4f52111996271cefdd98ac08662a4
 
+La conquête de la Sibérie est le processus de colonisation, par des populations majoritairement d'origine russe européenne, et encouragé par le gouvernement du tsarat de Russie puis de l'Empire russe, entre le XVIe et le XXe siècle, sur d'immenses territoires jusque-là habités par des peuples sibériens. 
